@@ -1,5 +1,4 @@
 1
-
 The ways that can be walked are not the eternal Way;
 The names that can be named are not the eternal name.
 The nameless is the origin of the myriad creatures;
@@ -12,11 +11,8 @@ They have different names but the same designation.
 Mystery of mysteries,
 The gate of all wonders!
 
-
 ---
-
 2
-
 When all under heaven know beauty as beauty, already there is ugliness;
 When everyone knows goodness, this accounts for badness.
 Being and nonbeing give birth to each other,
@@ -34,9 +30,7 @@ Now,
 Simply because he does not dwell on them, his accomplishments never leave him.
 
 ---
-
 3
-
 Not exalting men of worth prevents the people from competing;
 Not putting high value on rare goods prevents the people from being bandits;
 Not displaying objects of desire prevents the people from being disorderly.
@@ -53,9 +47,7 @@ Thus,
 His rule is universal.
 
 ---
-
 4
-
 The Way is empty, yet never refills with use;
 Bottomless it is, like the forefather of the myriad creatures.
 It files away sharp points,
@@ -68,9 +60,7 @@ I know not whose child it is,
 only that it resembles the predecessor of God.
 
 ---
-
 5
-
 Heaven and earth are inhumane;
 they view the myriad creatures as straw dogs.
 The sage is inhumane;
@@ -82,9 +72,7 @@ Hearing too much leads to utter exhaustion;
 Better to remain in the center.
 
 ---
-
 6
-
 The valley spirit never dies -
 it is called "the mysterious female";
 The gate of the mysterious female
@@ -94,9 +82,7 @@ seemingly insubstantial,
 yet never consumed through use.
 
 ---
-
 7
-
 Heaven is long and earth is lasting.
 Heaven and earth can be long and lasting because they do not live for themselves.
 Therefore,
@@ -109,9 +95,7 @@ Therefore,
 He can accomplish his private interests.
 
 ---
-
 8
-
 The highest good is like water;
 Water is good at benefiting the myriad creatures
 but also struggles to occupy the place loathed by the masses.
@@ -127,9 +111,7 @@ Now,
 It is precisely because one does not compete that there is no blame.
 
 ---
-
 9
-
 Instead of keeping a bow taut while holding it straight, better to relax.
 You may temper a sword until it is razor sharp, but you cannot preserve the edge for long.
 When gold and jade fill your rooms, no one will be able to guard them for you.
@@ -138,9 +120,7 @@ To withdraw when your work is finished,
 that is the Way of heaven.
 
 ---
-
 10
-
 While you
 Cultivate the soul and embrace unity,
 can you keep them from separating?
@@ -160,9 +140,7 @@ It rears them but does not control them.
 This is called "mysterious integrity."
 
 ---
-
 11
-
 Thirty spokes converge on a single hub,
 but it is in the space where there is nothing that the usefulness of the cart lies.
 Clay is molded to make a pot,
@@ -173,9 +151,7 @@ Therefore,
 Benefit may be derived from something, but it is in nothing that we find usefulness.
 
 ---
-
 12
-
 The five colors
 make a man's eyes blind;
 Horseracing and hunting
@@ -193,9 +169,7 @@ Therefore,
 He rejects the one and adopts the other.
 
 ---
-
 13
-
 "Being favored is so disgraceful that it startles,
 Being honored is an affliction as great as one's body."
 What is the meaning of "Being favored is so disgraceful that it startles"?
@@ -213,9 +187,7 @@ When a man is sparing of his body in caring for all under heaven,
 then all under heaven can be delivered to him.
 
 ---
-
 14
-
 We look for it but do not see it;
 we name it "subtle."
 We listen for it but do not hear it;
@@ -239,9 +211,7 @@ thereby understanding the primeval beginning.
 This is called "the thread of the Way."
 
 ---
-
 15
-
 Those of old who were adept in the Way were subtly profound and mysteriously perceptive,
 So deep they could not be recognized.
 Now,
