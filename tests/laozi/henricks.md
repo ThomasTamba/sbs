@@ -11,9 +11,7 @@
 8. They have different names yet they're called the same; 
 9. That which is even more profound that the profound— 
 10. The gateway of all subtleties.
-
 ---
-
 2 
 1. When everyone in the world knows the beautiful as beautiful, ugliness comes into being; 
 2. When everyone knows the good, then the not good comes to be. 
@@ -30,9 +28,7 @@
 12. He acts on their behalf, but he doesn't make them dependent; 
 13. He accomplishes his tasks, but he doesn't dwell on them; 
 14. It is only because he doesn't dwell on them, that they therefore do not leave them.
-
 ---
-
 3 
 1. By not elevating the worthy, you bring it about that people will not compete. 
 2. By not valuing goods that are hard to obtain, you bring it about that people will not act like thieves. 
@@ -47,9 +43,7 @@
 9. He constantly causes the people to be without knowledge and without desires. 
 10. If he can bring it about that those with knowledge simply do not dare to act, 
 11. Then there is nothing that will not be in order.
-
 ---
-
 4 
 1. The Way is empty; 
 2. Yet when you use it, you never need fill it again. 
@@ -63,9 +57,7 @@
 8. Submerged! It seems perhaps to exist. 
 9. We don't know whose child it is; 
 10. It seems to have [even] preceded the Lord.
-
 ---
-
 5 
 1. Heaven and Earth are not humane; 
 2. They regard the the thousand things as straw dogs. 
@@ -77,10 +69,7 @@
 7. Move it and more [always] comes out. 
 8. Much learning means frequent exhaustions. 
 9. That's not so good as holding on to the mean. 
- 
-
 ---
-
 6 
 1. The valley spirit never dies; 
 2. We call it the mysterious female. 
@@ -88,9 +77,7 @@
 4. These we call the roots of Heaven and Earth. 
 5. Subtle yet everlasting! It seems to exist. 
 6. In being used, it is not exhausted. 
-
 ---
-
 7 
 1. Heaven endures; Earth lasts a long time. 
 2. The reason why Heaven and Earth can endure and last a long time— 
@@ -103,9 +90,7 @@
 8. Puts self-concern out of [his mind], yet finds that his self-concern is preserved. 
 9. Is it not because he has no self-interest, 
 10. That he is therefore able to realize his self-interest?
-
 ---
-
 8 
 1. The highest good is like water; 
 2. Water is good at benefiting the ten thousand things and yet it [does not] compete [with them]. 
@@ -121,9 +106,7 @@
 11. In activity, the good thing is timeliness.
 
 12. It is only because it does not compete, that therefore it is without fault.
-
 ---
-
 9 
 1. To hold it upright and fill it, 
 2. Is not so good as stopping [in time]. 
@@ -135,9 +118,7 @@
 8. On their own bring on disaster. 
 9. When the deed is accomplished you retire; 
 10. Such is Heaven's Way! 
-
 ---
-
 10 
 1. In nourishing the soul and embracing the One—can you do it without letting them leave? 
 2. In concentrating your breath and making it soft—can you [make it like that of] a child? 
@@ -150,9 +131,7 @@
 8. Give birth to them but don't try to own them; 
 9. Help them to grow but don't rule them. 
 10. This is called Profound Virtue.
-
 ---
-
 11 
 1. Thirty spokes unite in one hub; 
 2. It is precisely where there is nothing, that we find the usefulness of the wheel. 
@@ -162,9 +141,7 @@
 6. It is precisely in these empty spaces, that we find the usefulness of the room. 
 7. Therefore, we regard having something as beneficial; 
 8. But having nothing as useful. 
-
 ---
-
 12 
 1. The five colors cause one's eyes to go blind. 
 2. Racing horses and hunting cause one's mind to go mad. 
@@ -175,9 +152,7 @@
 6. Therefore, in the government of the Sage: 
 7. He's for the belly and not for the eyes. 
 8. Thus he rejects that and take this.
-
 ---
-
 13 
 1. "Regard favor and disgrace with alarm." 
 2. "Respect great distress as you do your own person." 
@@ -194,9 +169,7 @@
 13. You can entrust the world. 
 14. And to one who in being parsimonious regards his person as equal to the world, 
 15. You can turn over the world. 
-
 ---
-
 14 
 1. We look at it but do not see it; 
 2. We name this "the minute." 
@@ -212,8 +185,6 @@
 11. Boundless, formless! It cannot be named, 
 12. And returns to the state of no-thing.
 
----
-
 13. This is called the formless form, 
 14. The substanceless image. 
 15. This is called the subtle and indistinct. 
@@ -223,9 +194,7 @@
 19. To manage the things of the present, 
 20. And to know the ancient beginning. 
 21. This is called the beginning of the thread of the Way.
-
 ---
-
 15 
 1. The one who was skilled at practicing the Way in antiquity, 
 2. Was subtle and profound, mysterious and penetratingly wise. 
@@ -240,7 +209,6 @@
 10. Genuine, unformed was he! Like uncarved wood. 
 11. Merged, undifferentiated was he! Like muddy water. 
 12. Broad and expansive was he! Like a valley.
-
 13. If you take muddy water and still it, it gradually becomes clear. 
 14. If you bring something to rest in order to move it, it gradually comes alive. 
 15. The one who preserved this Way does not desire to be full; 
